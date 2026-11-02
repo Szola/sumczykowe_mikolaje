@@ -1,1 +1,0 @@
-# sumczykowe_mikolaje
